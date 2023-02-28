@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...https://twitter.com/Mujibur19401109
--  PHONE @ WHATSAPP  +8801518907831
+-  PHONE & WHATSAPP  +8801518907831
  
   
 
