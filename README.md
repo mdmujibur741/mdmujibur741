@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mdmujibur741
 - 👀 I’m interested in ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...https://twitter.com/Mujibur19401109
+- 📫 How to reach me ...@devMujib
 -  PHONE & WHATSAPP  +8801616505450
  
   
